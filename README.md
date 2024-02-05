@@ -9,4 +9,4 @@ La clínica cuenta con instalaciones modernas y confortables, diseñadas para cr
 
 Arribelti se destaca por su compromiso con la satisfacción del cliente y por la excelencia en cada uno de sus servicios. Si estás buscando una solución para problemas capilares como la pérdida de cabello o la calvicie, Arribelti es el lugar ideal para ti. Confía en su experiencia y conocimientos, y recupera la confianza en ti mismo con un cabello saludable y hermoso.
 
-[¡Haz clic aquí para ir al inicio!](#inicio)
+[This is an external link to genome.gov](https://www.genome.gov/)
